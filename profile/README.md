@@ -1,6 +1,6 @@
 hi we do language
 
-**indium.eu.org**
+**we got rejected,sorry website coming soon :3**
 
 help appreciated!!!!!!! <3
 
